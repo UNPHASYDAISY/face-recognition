@@ -47,4 +47,4 @@ Project is: *completed*
 
 ## Contact
 
-Created by [Ashish Singh](https://www.linkedin.com/in/45h15h/) - feel free to contact me!
+Created by Khushi B Hanumannavar - feel free to contact me!
